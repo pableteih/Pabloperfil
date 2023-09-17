@@ -21,4 +21,3 @@ Contacto:
 
 Correo Electrónico: pablo.igor.hess@gmail.com
 Perfil de LinkedIn: https://www.linkedin.com/in/pablo-francisco-igor-hess-2b2854145)https://www.linkedin.com/in/pablo-francisco-igor-hess-2b2854145
-GitHub: [Tu perfil de GitHub]
